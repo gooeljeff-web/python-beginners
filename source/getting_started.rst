@@ -1,4 +1,4 @@
-Getting started
+jcodepy variables and parameters for the mixture of j code algorithm snippet for ram conscious technology and python and python3 code for compatibility with HTML JAVASCRIPT AND EMBER CODE USED UNTIL MACHINE LEARNING COMPLETE MODEL AI IS FULLFILLED FOR JEFFREY AND FOR GOOD {variable}000***<ans>,<p><insert>NB. string command line for KAPPA, ALPHA AND BETA MATH J CODE LANGUAGE ALGORITHM SNIPPET GENERATOR Getting started with jcodepy a final code language leading up to the ENGLISH COMMUNICATION WITH TECHNOLOGY CODE METHODS FOR AIBY ™ AND RAM CONSCIOUS TECHNOLOGY SCORP CORP WORLDWIDE MANUFACTURING COMPUTERSHARE RETAIL SALES AND MANUFACTURING PNEUMATIC ROM AUTOMATION SOFTWARE SPECIALIST 4495 MAIN ST BUFFALO NY 14225
 ***************
 
 What you'll need
